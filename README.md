@@ -1,4 +1,0 @@
-# ldq
-sfd
-s
-fd
